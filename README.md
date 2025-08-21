@@ -12,7 +12,7 @@
 - 💬 Ask me about them...
 - 🍀 If you want to connect with me you can use my email bokesheilla@gmail.com 
 
-- ⚡ I like learning new things every time i get a chance
+- ⚡ I like learning new things every time i get a chance.
 
   
   
